@@ -14,3 +14,5 @@
   > "Walace e Victor, aguardo seus commits....."
   
   > "Reticências .........."
+
+  > "SALVE GALERA"
