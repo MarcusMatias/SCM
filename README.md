@@ -11,6 +11,8 @@
   
   > "Quando vires um homem bom, tenta imitá-lo; quando vires um homem mau, examina-te a ti mesmo...."
 
+  > "To quase desistindo dessa caçamba..."
+
   > "Walace e Victor, aguardo seus commits....."
   
   > "Reticências .........."
