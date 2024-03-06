@@ -11,4 +11,6 @@
   
   > "Quando vires um homem bom, tenta imitá-lo; quando vires um homem mau, examina-te a ti mesmo...."
 
-  > "Samara e Layse, da um ligue!"
+  > "Walace e Victor, aguardo seus commits....."
+  
+  > "Reticências .........."
