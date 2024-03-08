@@ -14,6 +14,8 @@
   > "To quase desistindo dessa caçamba..."
 
   > "Walace e Victor, aguardo seus commits....."
+
+  > "Òh meu amô não fique tistre, saudade existe pra quem sabe ter."
   
   > "Reticências .........."
 
